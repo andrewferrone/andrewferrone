@@ -1,0 +1,1 @@
+👋 Hi, I’m @andrewferrone. I enjoy solving complex problems using software to benefit society, speaking Swahili, and spending time in the wilderness. I'm currently exploring opportunities to create decentralized, trustless solutions to global challenges created by centralized, authoritarian systems.
